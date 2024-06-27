@@ -1,5 +1,5 @@
 # 💫 About Me:
-## _Hi there, I'm Shrishti Singh_ 👋<br><br>- 🔭 I’m currently working on data analytics and cybersecurity projects.<br>- 🌱 I’m currently learning new techniques in data visualization and ethical hacking.<br>- 👯 I’m looking to collaborate on open-source projects related to cybersecurity.<br>- 💬 Ask me about data analytics, cybersecurity, and project management.<br><br># Connect with me:<br><br>[LinkedIn](www.linkedin.com/in/shrishti-singh-t) <br>
+## _Hi there, I'm Shrishti Singh_ 👋<br><br>- 🔭 I’m currently working on data analytics and cybersecurity projects.<br>- 🌱 I’m currently learning new techniques in data visualization and ethical hacking.<br>- 👯 I’m looking to collaborate on open-source projects related to cybersecurity.<br>- 💬 Ask me about data analytics, cybersecurity, and project management.<br>- How to reach me shrishtisingh13867@gmail.com <br><br># Connect with me:<br><br>[LinkedIn](www.linkedin.com/in/shrishti-singh-t) <br>
 
 
 ## 🌐 Socials:
